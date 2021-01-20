@@ -1,4 +1,4 @@
-### Hi I’m Meng-Hao Guo
+### Hi, I’m Meng-Hao Guo
 
 
 <!--
